@@ -1,1 +1,1 @@
-# turma-da-hello-kitty
+# turma-da-desgraça-cosmica
